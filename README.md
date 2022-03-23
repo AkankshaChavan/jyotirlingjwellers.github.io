@@ -1,1 +1,0 @@
-# jyotirlingjwellers.github.io
